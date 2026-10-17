@@ -10,3 +10,6 @@ Saya mendapatkan banyak pengetahuan dan motivasi untuk kuliah selama 4 tahun ked
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Kakak-kakak mentor dari cluster 1 sangat baik (dan dapat jajan :D) serta teman-teman baru... 
+
+## Harapan Kuliah 
+Semoga dapat lulus tepat waktu dan menjadi mahasiswa aktif.
